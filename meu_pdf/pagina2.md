@@ -1,0 +1,1 @@
+APRESENTAÇÃO DE RESULTADOSQuinta-feira, 15 de agosto de 2024.Às 11h00 (São Paulo) / 10h00 (Nova York).Transmissão em português, com tradução simultânea para o inglês.Para participar da reunião virtual clique no link abaixo:https://tenmeetings.com.br/ten-events/#/webinar?evento=IRB(Re)-2T24_157Análise de desempenho 2T24 | ri.irbre.com 2
